@@ -9,7 +9,7 @@
 - discord is slyndryt, but please interact elsewhere first!
 
 - please check out my strawpage or spacehey for more info! 
-  
+  <img src="https://i.imgur.com/dVFQj9V.jpeg"/>
 
 <!--
 **slyndryt/slyndryt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
