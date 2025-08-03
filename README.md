@@ -13,7 +13,7 @@
 
 
 
-<img src="https://upload.wikimedia.org/wikipedia/en/6/68/Terrortwilight.jpg"/>
+<img src="https://upload.wikimedia.org/wikipedia/en/6/68/Terrortwilight.jpg"/> <img src="https://f4.bcbits.com/img/a1038115859_16.jpg"/>
 <!--
 **slyndryt/slyndryt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
