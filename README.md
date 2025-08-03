@@ -9,7 +9,7 @@
 - discord is slyndryt, but please interact elsewhere first!
 
 - strawpage & spacehey subject to change! 
-### guess who has severe attachment issues haha could nottt be me... .(mooties n oomfs luv yall 🫶)
+### guess who has severe attachment issues haha could nottt be me... .(mooties n oomfs luv yall sm 🫶)
 
 
 
