@@ -3,7 +3,7 @@
 - taken<3 IHAVEABOYFRIEND!!1!
 ### im a minor! beware!
 ### feel free to interact, I don't bite! (i do suck at facilitating interactions though, so please keep that in mind ♡)
-- neil perry + will byers + mikr wheeler fictkin <img src="https://64.media.tumblr.com/975857c5da6a9ac9216e34b61462cb19/d6f9b97610fbb583-b5/s75x75_c1/bd5t be m9b13a9d19cdbdb115427018f62e848b6e155b.gifv"/>
+- neil perry + will byers + mike wheeler fictkin <img src="https://64.media.tumblr.com/975857c5da6a9ac9216e34b61462cb19/d6f9b97610fbb583-b5/s75x75_c1/bd5t be m9b13a9d19cdbdb115427018f62e848b6e155b.gifv"/>
 - canonically a deercoded cowboy thing 🦌
 ### still trying to work socials out, but i'm @/scaliywag or @/slyndryt pretty much anywhere!
 - i make art! more than willing to do art trades or commissions!!!!!
