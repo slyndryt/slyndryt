@@ -1,4 +1,4 @@
-## hiiiiii <img src="https://64.media.tumblr.com/f57468fd0e968dfcdce28974d3f3a4b6/4149a1d35ab9816c-bc/s75x75_c1/df472fffe7b0b12ad2e4cdf550a8610d17e5c9d7.gifv"/> ![](https://komarev.com/ghpvc/?username=slyndryt&label=cool+people+count)<img src="https://u.cubeupload.com/scallywag/68747470733a2f2f752e.png"/>
+## hiiiiii <img src="https://64.media.tumblr.com/f57468fd0e968dfcdce28974d3f3a4b6/4149a1d35ab9816c-bc/s75x75_c1/df472fffe7b0b12ad2e4cdf550a8610d17e5c9d7.gifv"/> ![](https://komarev.com/ghpvc/?username=slyndryt&label=cool+people+count)
 
 ### im neil 
 ### im a minor beware
