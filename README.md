@@ -12,4 +12,4 @@
 
 <img src="https://u.cubeupload.com/scallywag/ezgif24be5c18ed43d0c.png"/>
 
-<img src="https://i.ibb.co/1Y33J7yD/tumblr-8feb1075d63f885dadb14e1af65827f3-3bb4949b-400.webp"/>
+<img src="https://i.ibb.co/jZHrxpjF/106094260-ALOpk-KJl-PCxm1a-G.gif"/>
