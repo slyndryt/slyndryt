@@ -3,7 +3,7 @@
 ### im neil or caid                                                                         
 ### im a minor beware                   
 ### feel free to interact, I don't bite (i do sometimes suck at facilitating interactions though, so please keep that in mind ♡)
-- neil perry fictkin w/ frequent shifts, i dont mind doubles 
+- neil perry fictkin w/ frequent shifts, i dont mind doubles <img src="https://i.ibb.co/W4cMByDw/image.png"/>
 ### still trying to work socials out, but i'm @/scaliywag or @/slyndryt pretty much anywhere
 - discord is slyndryt, but please interact elsewhere first
 - most active on scratch.mit.edu, @slyndryt
@@ -14,4 +14,4 @@
 
 
 
-<img src="https://i.ibb.co/W4cMByDw/image.png"/>
+
