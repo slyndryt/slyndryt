@@ -12,6 +12,4 @@
 
 <img src="https://u.cubeupload.com/scallywag/ezgif24be5c18ed43d0c.png"/>
 
-
-<img src="<img width="395" height="393" alt="image" src="https://github.com/user-attachments/assets/c43e0bee-7380-4f7a-be9a-189f4faa5ca3" />
-"/>
+<img src="https://i.ibb.co/1Y33J7yD/tumblr-8feb1075d63f885dadb14e1af65827f3-3bb4949b-400.webp"/>
