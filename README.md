@@ -13,4 +13,5 @@
 <img src="https://u.cubeupload.com/scallywag/ezgif24be5c18ed43d0c.png"/>
 
 
-<img src="https://i.ibb.co/VcsJLspV/171381498-60x60.webp"/>
+
+<img src="https://i.ibb.co/W4cMByDw/image.png"/>
