@@ -12,4 +12,5 @@
 
 <img src="https://u.cubeupload.com/scallywag/ezgif24be5c18ed43d0c.png"/>
 
-<img src="https://i.ibb.co/jZHrxpjF/106094260-ALOpk-KJl-PCxm1a-G.gif"/>
+
+<img src="https://i.ibb.co/VcsJLspV/171381498-60x60.webp"/>
