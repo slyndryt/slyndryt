@@ -11,7 +11,6 @@
 ### if i dont respons on ponytown im prolly afk or just not in the mood to talk idk
 
 <img src="https://i.ibb.co/W4cMByDw/image.png" width="100" height="100"/> 
-[bandcamp width=100% height=42 album=4246849685 size=small bgcol=ffffff linkcol=0687f5 track=877334620] 
 
 
 
