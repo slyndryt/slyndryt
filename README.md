@@ -9,8 +9,7 @@
 - strawpage & spacehey subject to change
 ### if i dont respons on ponytown im prolly afk or just not in the mood to talk idk
 
-<img src="https://th.bing.com/th/id/R.7927bdc3aacc9c885db69227cc781c46?rik=zztV3PgUUABVgQ&pid=ImgRaw&r=0
-"/> 
+<img src="https://th.bing.com/th/id/R.7927bdc3aacc9c885db69227cc781c46?rik=zztV3PgUUABVgQ&pid=ImgRaw&r=0"/> 
 
 
 
